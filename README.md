@@ -1,2 +1,2 @@
 # Kayla-Rankin--Old-Artwork
-This is a collection of my old artwork 
+Welcome! I’m Kayla Rankin, and I’m excited to share this collection of 10 of my old art pieces that each tell a unique story. Through this digital gallery, I’ve selected works that reflect diverse styles, significance, and artistic evolution. Whether you're here to explore, reflect, or learn something new, I hope these pieces inspire a deeper appreciation for the richness of visual history.
